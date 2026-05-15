@@ -22,7 +22,7 @@
 
 <h3>
   Conversación del Presidente Leonel Fernandez a estudiantes...
-  https://whatsapp.com/channel/0029Va7gJe6JUM2cTRFKFF1P/1102
+  https://m.youtube.com/watch?v=oJ__1xb7o_w&pp=ygUtY29udmVyc2FjaW9uIGRlIGxlb25lbCBhIGVzdHVkaWFudGVzIGRlIHB1Y21t
 </h3>
 
   
