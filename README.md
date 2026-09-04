@@ -3,7 +3,7 @@
 <head>
 
 <h1>
-  Partido Polìtico Fuerza del Pueblo
+  Partido Fuerza Pueblo
   https://fuerzadelpueblo.org.do/
 </h1>
   
